@@ -11,7 +11,7 @@ Here are several takeaways for me:
 
 For soccer, I played two games per week, 5-6 miles per game.
 
-For hiking, I usually choose one day at weekend and take 10-13 miles. The longest distance I walked once in one day is 50,000+ steps (~32km, ~20 miles).
+For hiking, I usually choose one day at weekend and take 10-13 miles. The longest distance I hiked once in one day is 22 miles (~32km, 50,000+ steps).
 
-For reading, I usually take ~5h on reading per week.
+For reading, I usually spend ~5h on reading per week.
 
