@@ -11,7 +11,7 @@ Outside of work, I enjoy playing soccer, hiking, and reading.
 
 For soccer, I play two games per week, covering 5-6 miles per game.
 
-For hiking, I usually go on one day-long hike each weekend, typically covering 10-13 miles. My longest hike in a single day was 22 miles (~32 km, 50,000+ steps).
+For hiking, I usually go on one day-long hike each weekend, typically covering 10-13 miles. My longest hike in a single day was ~20 miles at Half Dome, Yosemite NP (~32 km, 50,000+ steps).
 
 For reading, I spend about 5 hours per week on books.
 
